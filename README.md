@@ -4,7 +4,7 @@ A melhor maneira de decidir é contemplar o método pelo qual o aplicativo será
 
 ![](http://amigasemulheres.com.br/wp-content/uploads/dsc324234.jpg)
 
-Em nosso projeto, não é uma funcionalidade que exige um código Java. **Outra segura e geralmente menos caro solução Pilula da Inteligência é a compra de sua memória a partir de www.crucial.com.** Atualmente não há uma opção para permitir que você para aumentar a memória utilizada pelo compilador IDL Ligia Guedes.
+Em nosso projeto, não é uma funcionalidade que exige um código Java. **Outra segura e geralmente menos caro solução Pilula da Inteligência é a compra de sua memória a partir de Atualmente não há uma opção para permitir que você para aumentar a memória utilizada pelo compilador IDL Ligia Guedes.
 
 O nó de otimização específica opções são restritas a alguns de nós que são usados com frequência, e possuem o potencial para fornecer a você com algumas grandes aumentos de desempenho quando usado no próprio cenários.
 
